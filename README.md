@@ -1,4 +1,4 @@
-雪浪云吉利全厂生产流程优化竞赛（团队二等奖3万）
+雪浪云吉利全厂生产流程优化竞赛（团队二等奖3万）https://www.xuelangyun.com/
 
 团队：Yaojian Xu, Yeming Yang, Qingling Zhu, Songbai Liu 
 
